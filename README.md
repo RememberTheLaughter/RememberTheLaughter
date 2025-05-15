@@ -1,1 +1,1 @@
-<img src="https://files.catbox.moe/844ybf.gif" width="700" height="250">
+<img src="https://media.tenor.com/3jVp9rYZFXcAAAAM/gerard-way.gif"> <img src="https://media.tenor.com/god5gECznyIAAAAM/my-chemical-romance-helena.gif"> <img src="https://media.tenor.com/LDQN266ds98AAAAM/gerard-way-mcr.gif"> <img src="https://media.tenor.com/TXMGhjHl2oAAAAAM/my-chemical-romance-mcr.gif">
